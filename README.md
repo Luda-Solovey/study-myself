@@ -1,1 +1,1 @@
-# study-myself
+# study-myself 1 lesson
